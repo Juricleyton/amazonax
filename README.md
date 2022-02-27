@@ -1,3 +1,2 @@
 # amazonax
-proteção meio ambiente
- vamos nos unir 
+proteção  para o meio ambiente 
